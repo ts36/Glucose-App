@@ -10,6 +10,8 @@
 ![image](https://github.com/ts36/Glucose-App/blob/main/S__71401493.jpg)
 
 
+![image](https://github.com/ts36/Glucose-App/blob/main/S__71401494.jpg)
+
 
 
 
